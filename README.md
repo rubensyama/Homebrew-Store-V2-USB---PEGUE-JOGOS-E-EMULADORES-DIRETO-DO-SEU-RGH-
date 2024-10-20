@@ -11,13 +11,15 @@ MOSTRADOS NO VIDEO ACIMA
 👇👇
 📌 -Homebrew Store V2 USB  
 
-
 🔗 Link MEGA: 
 https://bit.ly/409b8QL
+
 🔗 Link Mediafire : 
 https://bit.ly/48mJt0T
+
 🔗 Link direto : 
 https://bit.ly/3NzOEBc
+
 🔗 Link Google Drive
 https://bit.ly/48dBaoa
 
